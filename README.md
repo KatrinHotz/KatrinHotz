@@ -4,7 +4,7 @@
 - 💞️ I’m looking for a internship
 - 📫 You can reach me at katrinhotz92@gmail.com
 - 😄 Pronouns: she/hers
-- ⚡ Fun fact: Ia have 45 rescued cats
+- ⚡ Fun fact: I have 45 rescued cats
 
 <!---
 KatrinHotz/KatrinHotz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
